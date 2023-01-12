@@ -1,1 +1,1 @@
-# koronapayy
+# koronapay
